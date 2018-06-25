@@ -1,5 +1,5 @@
 # Library
-Books that I am reading, or have read.
+## Books that I am reading, or have read.
 
 ### The Social Skills Guidebook: Manage Shyness, Improve Your Conversations, and Make Friends, Without Giving Up Who You Are.
 If you have _any_ level of social anxiety or difficulty, read this book. His [blog](https://www.succeedsocially.com/thesocialskillsguidebook) also has a lot of really good, specific content. I highly recommend at least poking through his blog.
