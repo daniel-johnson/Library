@@ -25,13 +25,14 @@ An older poet's correspondance with a younger. I had read a few of his quotes on
 * Love consists in this, that two solitudes protect and touch and greet each other.
 * I hold this to be the highest task for a bond between two people: that each protects the solitude of the other.
 
+### Anathem
+A big book. About a human society where a 'religious' order preserved the maths and sciences through their dark ages. Been getting through it slowly for a while. 
+
 ### Zen and the art of Motorcycle Maintenance
 Highly recommended by a friend I respect. I plan on reading it summer 2018 while travelling.
 
 ### Time Enough for Love
 A classic for me, I read this in high school with other Heinlen works. Sci-Fi where some people can go through regenerative therapy, and don't have to die. Only slightly incestual.
-
-
 
 ### Catcher in the Rye
 Supposed to be a classic. I got 1/3 of the way through and didn't finish...
