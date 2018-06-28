@@ -4,11 +4,11 @@
 If you have _any_ level of social anxiety or difficulty, read this book. His [blog](https://www.succeedsocially.com/thesocialskillsguidebook) also has a lot of really good, specific content. I highly recommend at least poking through his blog.
 
 ### Being Mortal
-Written by a doctor, discussing modern medicine's clinical approach and how it's failing many end of life patients.
-What got me was hearing about so many people at the end of their lives. He tells about their priorities and how it guides their treatment. It got me crying.
+The name really says all you need to know: Being Mortal - Medicine, and what really matters in the end.
+Highly recommended.
 
 ### The Ethical Slut
-Just amazing. I don't care if you're polyamorous, asexual, straight and vanilla, bisexual, or whatever, this book is amazing and has something for everyone.
+Just amazing. I love how they value communication and opennes. I don't care if you're polyamorous, asexual, straight and vanilla, bisexual, or whatever, this book is amazing and has something for everyone.
 
 ### Marcus Aurelius, Gregory Hays - Meditations
 A classic stoic work. It's the private journal of a roman emperor. Don't get carried away caught in the past, or worrying about the future. Live in this moment, right now.
