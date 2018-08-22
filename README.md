@@ -3,6 +3,10 @@
 ### The Social Skills Guidebook: Manage Shyness, Improve Your Conversations, and Make Friends, Without Giving Up Who You Are.
 If you have _any_ level of social anxiety or difficulty, read this book. His [blog](https://www.succeedsocially.com/thesocialskillsguidebook) also has a lot of really good, specific content. I recommend at least poking through his blog.
 
+### Zen and the Art of Archery
+A european in Japan,ndin order to learn zen he studies archery. I've read about meditation and mindfullness stuff,
+This book feels like someone walking me through how they learned it, with no nonsense. 
+
 ### Being Mortal
 The name really says all you need to know: Being Mortal - Medicine, and what really matters in the end.
 Highly recommended.
