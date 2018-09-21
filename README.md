@@ -14,8 +14,10 @@ Highly recommended.
 ### The Ethical Slut
 Just amazing. I love how they value communication and openness. If you're polyamorous, asexual, straight and vanilla, bisexual, or whatever, this book is amazing and has something for everyone.
 
-### Marcus Aurelius, Gregory Hays - Meditations
-A classic stoic work. It's the private journal of a roman emperor. Don't get carried away caught in the past, or worrying about the future. Live in this moment, right now.
+### Tartine Bread
+Bread porn. If you've ever wanted to make sourdough bread, their first recipe called country loaf, is the best. The best.
+
+
 
 ### The Dispossessed - An Ambiguous Utopia
 The author, Ursula K Le Guin, is on of my favorite. This book is my favorite of hers.
@@ -35,14 +37,18 @@ An older poet's correspondance with a younger. I had read a few of his quotes on
 ### Anathem
 A big book. About a human society where a 'religious' order preserved the maths and sciences through their dark ages. Been getting through it slowly. 
 
-### Zen and the art of Motorcycle Maintenance
-Highly recommended by a friend. I plan on reading it summer 2018 while travelling.
+
+### Marcus Aurelius, Gregory Hays - Meditations
+A classic stoic work. It's the private journal of a roman emperor.
+
 
 ### Time Enough for Love
-A classic for me, I read this in high school with other Heinlen works. Sci-Fi where some people can go through regenerative therapy, and don't have to die. Only slightly incestual.
+A classic for me, I read this in high school with other Heinlen works. Sci-Fi where some people can go through regenerative therapy, and don't have to die.
 
-### Catcher in the Rye
-Supposed to be a classic. I got 1/3 of the way through and didn't finish.
+
+### Marcus Aurelius, Gregory Hays - Meditations
+
+
 
 ### Crytponomicon
 Haven't read it yet. Supposed to be classic, relatively modern Sci-Fi.
