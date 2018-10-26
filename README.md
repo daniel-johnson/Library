@@ -1,10 +1,8 @@
 # My Library - Books that I am reading, or have read.
 
 ### Being Mortal
-The name really says all you need to know
-> Being Mortal - Medicine, and what really matters in the end.
-
-Highly recommended.
+I highly recommend. The title is perfect:
+> Being Mortal - Medicine, and what really matters in the end
 
 ### Tartine Bread
 Bread porn. If you've ever wanted to make sourdough bread their first recipe, the country loaf, is the best. The best.
