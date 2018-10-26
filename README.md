@@ -5,7 +5,8 @@ I highly recommend. The title is perfect:
 > Being Mortal - Medicine, and what really matters in the end
 
 ### Tartine Bread
-Bread porn. If you've ever wanted to make sourdough bread their first recipe, the country loaf, is the best. The best.
+It's more than a cook book, it's poetry. A love story between a man and bread.
+Read up to the end of the first recipe, the country loaf.
 
 ### The Dispossessed - An Ambiguous Utopia
 My favorite book from my favorite author.
