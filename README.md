@@ -15,6 +15,7 @@ One of my high school favorites. A strain of long lived humans have the technolo
 
 ### Guns, Germs, and Steel - The Fates of Human Societies
 > From the begginings of agriculture, to the first civilazations, to today, why did some cultures thrive and dominate while others stayed in the stone age? A brilliant book that will explain the last 50,000 years of human history in a digestible way.
+
 A long book, it took me a year of reading it on and off. Worth it.
 
 ### Zen and the Art of Archery
