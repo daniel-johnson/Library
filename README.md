@@ -19,11 +19,10 @@ One of my high school favorites. A strain of long lived humans have the technolo
 
 A long book, it took me a year of reading it on and off. Worth it.
 
-### Zen and the Art of Archery
-A european in Japan, studying archery to learn zen. I've read about meditation and mindfullness,
-This book feels like someone walking me through how they learned it, with no nonsense.
 
-### The Social Skills Guidebook: Manage Shyness, Improve Your Conversations, and Make Friends, Without Giving Up Who You Are.
+
+
+### TheSocial Skills Guidebook: Manage Shyness, Improve Your Conversations, and Make Friends, Without Giving Up Who You Are.
 If you have _any_ level of social anxiety or difficulty, I recommend this. His [blog](https://www.succeedsocially.com/thesocialskillsguidebook) also has a lot of really good, specific content.
 
 ### Letters to a Young Poet
@@ -39,8 +38,10 @@ Knowing what you want, being open, and communicating are key to any relationship
 ### Anathem
 A big book. About a human society where a 'religious' order preserved the maths and sciences through their dark ages. Been getting through it slowly. 
 
+Haven't read it yet. Supposed to be classic, relatively modern Sci-Fi.
+
 ### Marcus Aurelius, Gregory Hays - Meditations
 A classic stoic work, the private journal of a roman emperor.
 
-### Crytponomicon
-Haven't read it yet. Supposed to be classic, relatively modern Sci-Fi.
+### Six Seasons: A New Way With Vegetables
+Haven't read it yet.
